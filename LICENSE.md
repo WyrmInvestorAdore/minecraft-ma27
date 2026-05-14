@@ -1,4 +1,4 @@
-#  
+#  Experience minecraft like never before with minecraft Script vip, the #1 Script. Includes auto-farm and aimbot for unbeatable performance.
 
 
 
